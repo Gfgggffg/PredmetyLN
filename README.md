@@ -4,3 +4,4 @@ https://docs.google.com/document/d/11naOnPlG6JnkkE5npY4bnUSPTJoeXdtsYdm318ZLA2I/
 Практикум:
 
 https://drive.google.com/drive/folders/1G6VXQU4OUZSPLzuVzJWS6tS7g8jr1JeQ?hl=ru
+![image](https://github.com/user-attachments/assets/49268c28-4e59-4ce7-9edd-f360808cd448)
